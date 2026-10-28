@@ -16,4 +16,4 @@ Again, no spamming otherwise you'll be ignored and please let us know if we adde
 
 ___
 
-<p align="center"><a href="https://github.com/ungrateful-twat">BIPHENYL</a> is running this account.</p>
+<p align="center"><a href="https://github.com/confusion-maretu">BIPHENYL</a> is running this account.</p>
